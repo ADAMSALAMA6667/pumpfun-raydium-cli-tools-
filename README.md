@@ -1,4 +1,4 @@
-# SPL token ALL-IN-ONE Command line tool 🚀
+adamsalama66667# SPL token ALL-IN-ONE Command line tool 🚀
 If you need my help, plz contact to me here
 [telegram @Ee1030109](https://t.me/Ee1030109)
 
